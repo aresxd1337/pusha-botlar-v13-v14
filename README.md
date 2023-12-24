@@ -14,5 +14,9 @@
 <img  src="https://cdn.discordapp.com/attachments/795595891129188375/1188583186893123594/image.png?ex=659b0d5a&is=6588985a&hm=1572b62954ff1043a83caa601979628682f5d52f2c1e8a3770423afc1342e945&">
 https://discord.gg/xbC8Gpg3Yp
 
+# BAK UNUTTUM BUNU YA
+<img  src="https://cdn.discordapp.com/attachments/1173678044968390788/1188401316859494432/image.png?ex=659a63f9&is=6587eef9&hm=4e64b3234a584ba70c29f6d13d4969d66b1e018ebb87902aa4eb1210c40f7601&">
+
+
 # APTAL HERİF SUPPORTU YAPAMIYOR AWK
 <img  src="https://cdn.discordapp.com/attachments/1188579851301564466/1188580619802906685/image.png?ex=659b0af6&is=658895f6&hm=01e9cc78df05b34da0118657fbab2cfaf2fdcb26d57fbdb551efa1521e781cb4&">
