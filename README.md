@@ -14,5 +14,5 @@
 <img  src="https://cdn.discordapp.com/attachments/795595891129188375/1188583186893123594/image.png?ex=659b0d5a&is=6588985a&hm=1572b62954ff1043a83caa601979628682f5d52f2c1e8a3770423afc1342e945&">
 https://discord.gg/xbC8Gpg3Yp
 
-# KÜÇÜK BİR SS ATIYORUM ŞURAYA ÜĞQWĞEÜŞEĞÜQWÜĞŞEŞQ
+# APTAL HERİF SUPPORTU YAPAMIYOR AWK
 <img  src="https://cdn.discordapp.com/attachments/1188579851301564466/1188580619802906685/image.png?ex=659b0af6&is=658895f6&hm=01e9cc78df05b34da0118657fbab2cfaf2fdcb26d57fbdb551efa1521e781cb4&">
